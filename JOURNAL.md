@@ -15,5 +15,8 @@ You can view this journal in more detail on **Hack Club Blueprint** [here](https
 On Sunday October 5th, the three of us went walking around my neighbourhood to look for a couch. Prior to that we had seen a lot of couches around our city but didn't have the resources to bring it back with us. However, that Sunday, we lugged around a (probably too small) red wagon I found in my backyard. We walked around for almost 2 hours looking for a couch but couldn't find one. Fortunately, our efforts did not go to waste as we managed to find some nice floorboards someone ripped out and left on the side of the road. We believe we can use these boards to build the base. At some point our main goal went from finding a couch to finding any resources we could find that would help the couch, and it helped us plan the ways we were going to budget this project. Afterwards, we dragged the wood back to my house and then went to get lunch.
 ![Snapchat-1925517879.png](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6MzEyMSwicHVyIjoiYmxvYl9pZCJ9fQ==--786a4faf6676ffa4502bc77c625150abbb3bc691/Snapchat-1925517879.png)
 (Evelyn dragging the wagon with the wood + Emily with her bike up front)
+
+![Screenshot 2025-10-18 191550.png](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6MzEyOCwicHVyIjoiYmxvYl9pZCJ9fQ==--81a57b340e3b713cd6d7d8d9f28fa6a9dde5b7ca/Screenshot%202025-10-18%20191550.png)
+(Me dragging the wagon)
   
 
